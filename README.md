@@ -1,1 +1,3 @@
-# .github
+# *Stop Worrying and Start Living — A Soulful Shift to Peace & Presence*
+## *Discover how to overcome worry by mastering your mind and embracing the present moment. Learn Shaolin teachings on freedom, structure, and the power of being fully present in life. The key to unlocking a purposeful, worry-free life isn't about doing more, but about learning to undo the mental habits that enslave you. This is the Shaolin wisdom for finding joy, reclaiming your energy, and living a truly free life.* [More details…](https://spiritualkhazaana.com/web-stories/stop-worrying-and-start-living/)
+## #StopWorrying #MindfulLiving #PresentMoment #ShiHengYi #MentalFreedom #Mindfulness #AnxietyRelief #InnerPeace #AuthenticFreedom #SpiritualWisdom #SpiritualGrowth #Mindfulness #Motivation #Inspirational #LiveInTheNow #SelfCare #SoulWork
